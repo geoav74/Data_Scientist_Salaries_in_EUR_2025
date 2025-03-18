@@ -1,0 +1,1 @@
+# Data_Scientist_Salaries_in_EUR_2025
